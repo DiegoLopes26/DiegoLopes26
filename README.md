@@ -1,4 +1,4 @@
-# 👩🏻‍💻 Diego Lopes
+# 💻 Diego Lopes
 
 **`Estudante de Tecnologia`**
 
